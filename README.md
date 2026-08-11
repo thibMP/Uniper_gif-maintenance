@@ -1,2 +1,2 @@
 # Uniper_gif-maintenance
-Domain Takeover for hyjacked domain
+contact Uniper Abuse Mail <abuse@uniper.energy>
